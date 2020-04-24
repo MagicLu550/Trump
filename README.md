@@ -29,3 +29,4 @@ It used to be said that the quality of the Chinese is low and the Chinese are no
 The western government is most likely to tell lies, and politicians are exquisite actors.
 I know that you are very powerful, you are the overlord of the world, but please put down your countertop in front of the epidemic.
 There are always some villains who steal and grab at chaotic times, and the real strong are to help the weak.
+I DO NOT want to see someone talk about the Chinese virus, I DO NOT want to see someone ask for compensation, I DO NOT want to see lies
